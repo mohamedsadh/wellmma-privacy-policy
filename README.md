@@ -1,1 +1,1 @@
-# wellmma-privacy-policy test
+# wellmma-privacy-policy
